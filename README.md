@@ -1,1 +1,1 @@
-[Сайтик инвейд на пати](http://777zerocool777.github.io/goodevent)
+[Сайтик инвейд на пати](http://exwarvlad.github.io/goodevent)
